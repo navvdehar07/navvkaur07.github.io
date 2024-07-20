@@ -11,3 +11,5 @@
 |             | Dr.H.S.Rai     | He is the controller of Examination, shared his perspective that examinations are opportunities to shine. He also recounted his journey to the Google Summer of Code alongside his students. Later, he invited those passionate about coding to join the CodeGNE group.    |
 | 12 July 2024   | Peer Interaction Canva     | In this lecture , our senior interected with us, demonstrating how to use Canva and explaining its features. We were then tasked with creating a flyer to apply what we had learned. |
 |             | Maths Class By Neeraj Kumar | In our first math class, the teacher went over the chapter on diffrentiate and guided us through solving related problems.   | 
+|  15 July 2024  | Dr. Randhir Singh | In this session sir taught us how to create an account on Github page and upload the report of induction programm |
+|             |  Dr. Pyare Lal Garg | 
