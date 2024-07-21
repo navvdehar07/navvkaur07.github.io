@@ -21,4 +21,6 @@
 |             | A.P.Nisha Masson | In the first UH-V class, we completed two chapters. In the first chapter, we explored concepts of happiness and prosperity, including guidelines for mutual happiness, mutual prosperity, the role of education, and self-exploration. In the second chapter, we studied the coexistence of body and soul, the needs of both, and the sources of imagination.  |
 |             |  Test | A test was conducted to assess English proficiency. |
 | 18 July 2024 | A.P.Nisha Masson | In the second UHV class, we completed the third chapter, which focused on understanding harmony in relationships,the nature of feelings, and the differences between love and infatuation. |
-|             | Peer Interaction | During this session, a senior 
+|             | Peer Interaction | During this session, a senior  interacted with us and provided a detailed description of the college website. they discussed the importance of having the courage to speak in public, effective communication skills, discipline, the exam pattern, and the marking system. |
+|            | Dr.Harwinder Singh | He explained the purpose of joining the NCC (National Cadet Corps) including the benefits it offersand the process for enrollment. He emphasized that the NCC teaches life skills that are essential for leading a good lifestyle. | 
+|            | Er.Jasvir Singh |                                 |
