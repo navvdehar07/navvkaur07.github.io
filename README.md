@@ -19,3 +19,6 @@
 |              | A.P.Jaismeen Kaur  | A quiz take place based on general knowledge |
 | 17 July 2024 | A.P.Sukhminder Singh | Sir asked why math classes are included in our induction program instead of other subjects. A student responded that math is relevant to every subject. The instructor then gave us a problem based on differentiation to solve. While checking our solutions, he inquired about our names and previous schools. After that, he gave us a break. Once we returned, we solved additional problems, and he assigned some problems as homework. |
 |             | A.P.Nisha Masson | In the first UH-V class, we completed two chapters. In the first chapter, we explored concepts of happiness and prosperity, including guidelines for mutual happiness, mutual prosperity, the role of education, and self-exploration. In the second chapter, we studied the coexistence of body and soul, the needs of both, and the sources of imagination.  |
+|             |  Test | A test was conducted to assess English proficiency. |
+| 18 July 2024 | A.P.Nisha Masson | In the second UHV class, we completed the third chapter, which focused on understanding harmony in relationships,the nature of feelings, and the differences between love and infatuation. |
+|             | Peer Interaction | During this session, a senior 
