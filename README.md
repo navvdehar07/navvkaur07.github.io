@@ -23,4 +23,17 @@
 | 18 July 2024 | A.P.Nisha Masson | In the second UHV class, we completed the third chapter, which focused on understanding harmony in relationships,the nature of feelings, and the differences between love and infatuation. |
 |             | Peer Interaction | During this session, a senior  interacted with us and provided a detailed description of the college website. they discussed the importance of having the courage to speak in public, effective communication skills, discipline, the exam pattern, and the marking system. |
 |            | Dr.Harwinder Singh | He explained the purpose of joining the NCC (National Cadet Corps) including the benefits it offersand the process for enrollment. He emphasized that the NCC teaches life skills that are essential for leading a good lifestyle. | 
-|            | Er.Jasvir Singh |                                 |
+|            | Er.Jasvir Singh | He also told us how to join NSS and how it is helpful for all student. What is the role of NSS students? Duties of NSS Volunteers:
+
+Identify needs. Problems and resources of the community. iii. Plan Programmes and carry out the plans. Aim of NSS: Development of the personality of students through Community Service.
+
+Objectives of NSS:
+
+To work with / among people.
+To engage in creative and constructive social action.
+To enhance his/her knowledge of himself / herself and the community.
+To put his/her scholarship to practical use in mitigating at least some of the problems.
+To gain skill in the exercise of democratic leadership.
+To gain skills in programme development to enable him/her for self-employment.
+To bridge the gulf between the educated and the uneducated masses.
+To promote the will to serve the weaker section of the community. |
