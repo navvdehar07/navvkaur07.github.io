@@ -1,4 +1,4 @@
-# Guru Nanak Dev Engineering Collge 
+# Guru Nanak Dev Engineering College 
 ## Induction Activity Report 2024
 | Date | Guest | Description |
 | :------------------- | :----------: | ----------: |
@@ -16,5 +16,5 @@
 |             |  Mr. Sony Goyal | Mr. Goyal , a remarkable educater, delivered a powerful session one two ka four (1 2 ka 4 ). He emhasized the importance of giving 100% to every task and second one is Love What You Do and Do What You Love. He urged us to learn with both mind and heart and also to ask question without hesitation. |  
 |             | Mr. Pancham  |  He is fourth year student in our college and our senior. He taught us about non-verbal communication, body language and behavior. He also shared inspiring anecdotes and lessons from his leadership roles in various societies. Later, he introduced us to the SAE Club, which offers creative and exhilarating activities that left me truly amazed. | 
 | 16 July 2024 | A.P.Nisha Masson and Manjot Kaur | In this lecture, a quiz took place between CSD and CSE based on english language. |
-|              | A.P.Jaismeen Kaur | A quiz took place based on the general knowledge. | 
-| 17 July 2024 |                 |                                     |
+|              | A.P.Jaismeen Kaur  | A quiz take place based on general knowledge |
+|              | A.P.Sukhminder Singh | 
